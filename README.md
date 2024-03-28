@@ -1,8 +1,6 @@
 # Bruno Medeiros Costa
 
 ## Contact Information
-- **Phone:** 55 48 99634-8787 (Mobile)
-- **Email:** brunomc@outlook.com
 - **LinkedIn:** [www.linkedin.com/in/obrunomc](www.linkedin.com/in/obrunomc)
 
 ## Summary
